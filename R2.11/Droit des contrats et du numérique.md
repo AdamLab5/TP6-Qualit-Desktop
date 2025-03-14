@@ -1,4 +1,4 @@
-    **Droit des contrats et du numérique.md**
+    **Droit des contrats et du numérique**
     
     Enseignant : _Nathalie NEGRO_
     Enseignant : _PENDARIES Esther_
